@@ -1,0 +1,2 @@
+# Redneck-Modifications
+Redneck Modifications is to upload all my own project files, but if you join my discord, actual name is ''Redneck Leaks''. Sadly people would think im leaking these uploaded scripts here and report me, actually no, these are made by me. When i owned ScriptCenter most of services were paid, now get esx, vrp or custom frameworks from here or check my other reps! Peace broskis!
